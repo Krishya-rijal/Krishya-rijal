@@ -7,7 +7,7 @@
       Instagram: https://www.instagram.com/krishya_rijal/
       Facebook: https://www.facebook.com/krishya.rijal
       Linkedin: linkedin.com/in/krishya-rijal-1a6638350
-      WhatsApp : +9779745721779
+      WhatsApp : +9779745721778
 
 
   - Hello!!!
